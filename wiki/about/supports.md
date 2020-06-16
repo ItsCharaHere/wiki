@@ -43,7 +43,7 @@ Heart of gold, nerves of steel.... And a knob of butter
 ## Chara_
 I like smiling and gaming the gamer games SmileW :)
 
-**Roles:** Support, 3D Artists
+**Roles:** Support, 3D Artists, Moderator
 
 [Discord](https://discord.gg/NXnPYEh) | [Youtube](https://www.youtube.com/c/CharaHere)
 
